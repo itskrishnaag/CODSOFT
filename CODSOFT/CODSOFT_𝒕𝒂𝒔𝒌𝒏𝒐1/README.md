@@ -1,2 +1,0 @@
-# CODSOFT-1
-intership LANDING PAGE
